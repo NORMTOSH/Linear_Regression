@@ -1,1 +1,0 @@
-# Carnegie-Training-Institute
